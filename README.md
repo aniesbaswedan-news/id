@@ -1,1 +1,1 @@
-# id
+BERITA TERBARU
